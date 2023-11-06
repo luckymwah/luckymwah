@@ -1,0 +1,4 @@
+- 👋 Haii, I’m lucky :3
+- 👀 I’m interested in Minecraft, warrior cats, Melanie Martinez, total drama. 
+- 🌱 I’m currently learning how to cook
+-  📫 How to reach me, you can reach me on my discord l0ve.lucky
